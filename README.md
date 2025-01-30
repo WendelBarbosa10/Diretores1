@@ -16,3 +16,7 @@
 ![Ediane](https://github.com/WendelBarbosa10/Diretores1/assets/150787296/c603ccd7-9022-4d19-a723-455a9703c4d7)
 ![Albert](https://github.com/WendelBarbosa10/Diretores1/assets/150787296/1ec35d3a-180b-4d2e-9b73-ea3450384421)
 ![Ademar](https://github.com/WendelBarbosa10/Diretores1/assets/150787296/763572c0-8534-423f-bd12-ab487b83e086)
+![PAT Claudio](https://github.com/user-attachments/assets/73d4e877-2707-49ac-995f-86257701ff1e)
+![Epitacyo1](https://github.com/user-attachments/assets/3338d354-1a49-41d4-8fc2-d774b1542c70)
+![Epitacyo](https://github.com/user-attachments/assets/10d7a490-8fed-48cb-a971-10cd63c7d3e8)
+![claudio](https://github.com/user-attachments/assets/262a32fb-d86c-429b-8d1a-e474f8e9edf9)
